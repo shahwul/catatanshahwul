@@ -1,1 +1,1 @@
-Aku suka janda!
+I love beating nigger's assess!
